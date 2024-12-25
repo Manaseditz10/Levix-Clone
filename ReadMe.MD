@@ -1,4 +1,4 @@
-# FUCKED LEVUX , TRIX , HARM 
+# FUCKED LEVIX , TRIC , HARM 
 > Skidded And Dumped Bot From Bitzxier!
 
 # FOR SUPPORT 
